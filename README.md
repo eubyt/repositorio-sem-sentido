@@ -1,3 +1,3 @@
 # repositorio-sem-sentido
-Diversas coisas random, não ligue para o que tiver aqui
+Diversas coisas random, não ligue para o que estiver aqui
 
